@@ -1,7 +1,7 @@
 ### Hi there, my name is Kirll! 👋
 
 ### About Me ###
-* Loves Technology 🖨
+* Loves to Analyze Data 🖨
 * Crypto Enthusiast :chart:
 * Mildly Active 🏃‍♂️
 
